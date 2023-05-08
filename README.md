@@ -2,7 +2,7 @@ Welcome to my Life!!!!!!
 
 My fun facts
 
-1) I love Minions! [download](https://user-images.githubusercontent.com/105660327/236891341-02088964-5f87-49b3-a8ea-159ecbbe81e9.jpg)
+1)I love Minions! [download](https://user-images.githubusercontent.com/105660327/236891341-02088964-5f87-49b3-a8ea-159ecbbe81e9.jpg)
 
 
 
